@@ -54,9 +54,19 @@ Meanwhile I keep working out: mainly mountain trail running and bycicle riding, 
 
 Be my guest if you would like to share any of these moments together, it would be a real pleasure for me ! Going from a technology-chat to some more sport-action together ... even a mix of both is fun !!!
 
+## Thanks &#9829; !!!
+
+It's time of course to express my gratitude for your commitment and dedication to Codit. It's been a real pleasure to work together and hope to work again with you in the future.
+
+Although I'm leaving Codit, all the good memories and **the friendship** will remain forever !!!
+
+Let's stay in contact: [here](#contacts).
+
+I hope to see you all on the 25-years Codit Party on Sat 15th of March 2025 !
+
 ## TL;DR
 
-Bernard is leaving after 25 years Codit ... and would like to keep in touch with you both professionally as in private life ;-)
+Bernard is leaving after 25 years Codit, thanks you ... and would like to keep in touch with you both professionally as in private life ;-)
 
 ## Contacts
 
